@@ -6,7 +6,14 @@ It is ment to work like a ech a schech but atm when going left or right it gose 
 
 This can be used with butons or with comands
 
-,
+
+sams youtube
+
+look mum no computer
+https://www.youtube.com/channel/UCafxR2HWJRmMfSdyZXvZMTw
+
+this museum is not obsoleate
+https://www.youtube.com/user/sammybartl
 
 ,
 
