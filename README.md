@@ -19,7 +19,7 @@ https://www.youtube.com/user/sammybartl
 
 ,
 
-#Comands
+# Comands
 
 doc by FineQuasar17
 
