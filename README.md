@@ -19,6 +19,8 @@ https://www.youtube.com/user/sammybartl
 
 ,
 
+#Comands
+
 doc by FineQuasar17
 
 comands:
